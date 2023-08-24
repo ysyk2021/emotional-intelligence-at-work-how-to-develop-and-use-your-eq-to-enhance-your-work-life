@@ -1,5 +1,3 @@
-Understanding the Causes of Conflict in the Workplace
-=====================================================================================
 
 Conflict is a natural part of working with others, and emotional intelligence (EQ) skills are essential for effectively managing conflict in the workplace. In this chapter, we will explore the causes of conflict in the workplace and strategies for resolving conflicts effectively.
 

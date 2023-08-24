@@ -1,5 +1,3 @@
-Techniques for Building Strong Relationships
-===============================================================================
 
 Building strong relationships is a critical component of emotional intelligence (EQ) and can help individuals succeed in their careers. In this chapter, we will explore techniques for building strong professional relationships.
 

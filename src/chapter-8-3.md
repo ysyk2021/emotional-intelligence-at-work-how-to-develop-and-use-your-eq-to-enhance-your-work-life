@@ -1,5 +1,3 @@
-Inspiring and Motivating Employees
-================================================================
 
 Inspiring and motivating employees is an important part of leadership. Emotionally intelligent leaders are better equipped to inspire and motivate their employees, creating a positive work environment that fosters productivity, creativity, and innovation. In this chapter, we will explore strategies for inspiring and motivating employees using emotional intelligence.
 

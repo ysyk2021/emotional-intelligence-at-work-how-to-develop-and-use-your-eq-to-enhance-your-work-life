@@ -1,4 +1,3 @@
-# Assessing Your Own EQ Level
 
 Assessing your own emotional intelligence (EI) level is an important first step towards developing your EI skills. Strategies for assessing your own EI level may include:
 

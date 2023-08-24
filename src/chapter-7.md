@@ -1,5 +1,3 @@
-Chapter 7: Conflict Resolution
-==============================
 
 Conflict is a natural part of any workplace, and emotional intelligence (EQ) can play a critical role in resolving conflicts effectively. Individuals who can manage their emotions and respond empathetically to others' emotions are better equipped to resolve conflicts and build stronger relationships. In this chapter, we will explore strategies for conflict resolution using EQ.
 

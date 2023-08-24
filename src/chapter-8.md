@@ -1,5 +1,3 @@
-Chapter 8: Leadership and EQ
-============================
 
 Leadership and emotional intelligence (EQ) are closely intertwined. Emotionally intelligent leaders are better equipped to build strong teams, inspire their employees, and create a positive work environment. In this chapter, we will explore the relationship between leadership and EQ.
 

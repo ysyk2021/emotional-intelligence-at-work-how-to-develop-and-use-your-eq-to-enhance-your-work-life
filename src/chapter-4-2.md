@@ -1,5 +1,3 @@
-Developing Empathy Skills
-==================================================================
 
 Empathy and social awareness are key components of emotional intelligence (EQ). In this chapter, we will explore the importance of developing empathy skills and strategies for enhancing empathy in the workplace.
 

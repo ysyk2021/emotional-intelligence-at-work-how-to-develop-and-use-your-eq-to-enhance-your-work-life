@@ -1,4 +1,3 @@
-# Creating a Positive Work Environment
 
 Leaders who possess strong emotional intelligence (EI) skills can create a positive work environment that fosters growth, collaboration, and productivity. Strategies for creating a positive work environment may include:
 

@@ -1,5 +1,3 @@
-Understanding the Importance of Emotional Intelligence in the Workplace
-================================================================================================
 
 Emotional intelligence (EQ) is the ability to understand and manage one's emotions, as well as the emotions of others. In the workplace, EQ is critical for success, both personally and professionally. In this chapter, we will explore the importance of emotional intelligence in the workplace.
 

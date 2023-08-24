@@ -1,5 +1,3 @@
-Strategies for Enhancing Social Awareness
-==================================================================================
 
 Empathy and social awareness are critical components of emotional intelligence (EQ) and involve understanding and responding to other people's emotions. In this chapter, we will explore strategies for enhancing social awareness in the workplace.
 

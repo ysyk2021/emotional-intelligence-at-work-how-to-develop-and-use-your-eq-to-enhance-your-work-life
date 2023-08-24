@@ -1,4 +1,3 @@
-# Common Misconceptions About EQ
 
 Emotional intelligence (EI) is a set of skills that enable individuals to recognize, understand, and manage their own emotions, as well as the emotions of others. However, there are some common misconceptions about EI. These misconceptions include:
 

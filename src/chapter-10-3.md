@@ -1,4 +1,3 @@
-# Continuously Learning and Improving
 
 Continuous learning and improving is an important part of developing emotional intelligence (EI) skills in the workplace. Strategies for continuous learning and improving may include:
 

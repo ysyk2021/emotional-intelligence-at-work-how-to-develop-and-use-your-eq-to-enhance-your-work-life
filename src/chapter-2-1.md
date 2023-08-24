@@ -1,4 +1,3 @@
-# Overview of Emotional Intelligence
 
 Emotional intelligence (EI) is the ability to recognize, understand and manage our own emotions, as well as to recognize, understand and influence the emotions of others. It involves a set of skills that enable effective communication, relationship building, and conflict resolution. The four components of emotional intelligence are:
 

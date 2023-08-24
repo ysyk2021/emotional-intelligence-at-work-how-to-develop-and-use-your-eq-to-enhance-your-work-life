@@ -1,5 +1,3 @@
-Understanding Empathy and Its Importance at Work
-=========================================================================================
 
 Empathy and social awareness are key components of emotional intelligence (EQ). In this chapter, we will explore the importance of empathy in the workplace and how to develop empathy skills.
 

@@ -1,4 +1,3 @@
-# Strategies for Developing Trust and Respect
 
 Building trust and respect is essential for developing strong relationships in the workplace. Strategies for developing trust and respect may include:
 

@@ -1,5 +1,3 @@
-Chapter 4: Empathy and Social Awareness
-=======================================
 
 Empathy and social awareness are critical components of emotional intelligence (EQ) in the workplace. Individuals who can understand and respond to the emotions of others are better equipped to build strong relationships, resolve conflicts, and lead others effectively. In this chapter, we will explore empathy and social awareness and how to develop these skills.
 

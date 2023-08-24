@@ -1,5 +1,3 @@
-Chapter 2: Defining Emotional Intelligence
-==========================================
 
 Emotional intelligence (EQ) is a critical skill for success in the workplace. It involves understanding and managing our own emotions, recognizing and responding to others' emotions, and building strong relationships. In this chapter, we will define emotional intelligence, explore its components, and discuss strategies for assessing your own EQ level.
 

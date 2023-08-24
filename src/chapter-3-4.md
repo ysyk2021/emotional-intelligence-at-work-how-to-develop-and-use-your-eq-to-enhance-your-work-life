@@ -1,5 +1,3 @@
-Strategies for Developing Self-Control
-=====================================================================================
 
 Self-awareness and self-regulation are key components of emotional intelligence (EQ). In this chapter, we will explore strategies for developing self-control, which is an essential component of self-regulation.
 

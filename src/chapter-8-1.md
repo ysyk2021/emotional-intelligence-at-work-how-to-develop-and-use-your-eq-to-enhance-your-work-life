@@ -1,4 +1,3 @@
-# Applying EQ Skills to Leadership
 
 Leadership requires a high level of emotional intelligence (EI) skills. Leaders who possess strong EI skills are better equipped to inspire and motivate their team, build strong relationships, manage conflict, and make effective decisions. Strategies for applying EI skills to leadership may include:
 

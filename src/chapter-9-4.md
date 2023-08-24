@@ -1,5 +1,3 @@
-Utilizing EQ to Build a Strong Professional Network
-===============================================================================================
 
 Building a strong professional network is critical for career advancement, and emotional intelligence (EQ) can play a significant role in this process. Individuals who can understand and respond to the emotions of others are better equipped to build strong relationships, establish trust, and create opportunities for career growth. In this chapter, we will explore strategies for utilizing EQ to build a strong professional network.
 

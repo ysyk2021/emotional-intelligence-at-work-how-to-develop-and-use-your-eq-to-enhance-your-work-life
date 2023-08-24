@@ -1,5 +1,3 @@
-Developing Self-Awareness Skills
-===============================================================================
 
 Self-awareness and self-regulation are critical components of emotional intelligence (EQ) and involve managing one's own emotions. In this chapter, we will explore techniques for developing self-awareness skills in the workplace.
 

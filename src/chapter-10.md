@@ -1,4 +1,3 @@
-# Chapter 10: Continuous Improvement and Evaluation
 
 Continuous improvement and evaluation are important for developing emotional intelligence (EI) skills in the workplace. Strategies for continuous improvement and evaluation may include:
 

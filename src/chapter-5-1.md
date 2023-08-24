@@ -1,5 +1,3 @@
-Understanding the Importance of Relationship Building in the Workplace
-=========================================================================================================
 
 Building strong relationships is a critical component of emotional intelligence (EQ) and can help individuals succeed in their careers. In this chapter, we will explore the importance of relationship building in the workplace and strategies for developing strong professional relationships.
 

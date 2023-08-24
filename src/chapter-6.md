@@ -1,5 +1,3 @@
-Chapter 6: Effective Communication
-==================================
 
 Effective communication is a critical component of emotional intelligence (EQ) in the workplace. Individuals who can communicate effectively are better equipped to build strong relationships, resolve conflicts, and lead others effectively. In this chapter, we will explore strategies for developing effective communication skills.
 

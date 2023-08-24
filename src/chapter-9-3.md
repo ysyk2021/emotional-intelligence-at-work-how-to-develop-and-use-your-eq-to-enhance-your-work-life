@@ -1,5 +1,3 @@
-Demonstrating EQ in Job Interviews and Performance Reviews
-======================================================================================================
 
 Emotional intelligence (EQ) is a critical skill for success in the workplace, including during job interviews and performance reviews. Employers are increasingly looking for candidates and employees who can demonstrate emotional intelligence in these situations. In this chapter, we will explore strategies for demonstrating EQ in job interviews and performance reviews.
 

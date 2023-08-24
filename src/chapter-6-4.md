@@ -1,5 +1,3 @@
-Utilizing Nonverbal Communication Techniques
-================================================================================
 
 Effective communication is a crucial component of emotional intelligence (EQ) and involves both verbal and nonverbal communication techniques. In this chapter, we will explore strategies for utilizing nonverbal communication techniques to enhance communication in the workplace.
 

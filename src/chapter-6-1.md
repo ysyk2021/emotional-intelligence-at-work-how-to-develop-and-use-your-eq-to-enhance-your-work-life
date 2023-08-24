@@ -1,5 +1,3 @@
-Understanding the Role of Communication in EQ
-=================================================================================
 
 Effective communication is a crucial component of emotional intelligence (EQ) and involves developing strong communication skills. In this chapter, we will explore the role of communication in EQ.
 

@@ -1,5 +1,3 @@
-Leveraging EQ to Advance Your Career
-================================================================================
 
 Leveraging emotional intelligence (EQ) is a powerful way to advance one's career. Individuals who are emotionally intelligent are better equipped to build strong relationships, demonstrate leadership, manage stress, and navigate difficult conversations. In this chapter, we will explore strategies for leveraging EQ to advance your career.
 

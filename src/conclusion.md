@@ -1,4 +1,4 @@
-# Conclusion
+
 
 In conclusion, emotional intelligence (EI) is a set of skills that enable individuals to recognize, understand, and manage their own emotions, as well as the emotions of others. Developing EI skills can enhance one's work life and contribute to a positive workplace culture.
 

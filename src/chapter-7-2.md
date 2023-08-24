@@ -1,5 +1,3 @@
-Techniques for Resolving Conflicts
-==================================================================
 
 Conflict is a natural part of working with others, but emotional intelligence (EQ) skills are essential for effectively managing conflict in the workplace. In this chapter, we will explore some techniques for resolving conflicts effectively.
 

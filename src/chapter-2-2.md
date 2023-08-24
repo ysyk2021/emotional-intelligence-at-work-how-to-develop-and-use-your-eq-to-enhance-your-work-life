@@ -1,4 +1,3 @@
-# Understanding the Four Components of EQ
 
 Emotional intelligence (EI) is a set of skills that enable individuals to recognize, understand, and manage their own emotions, as well as the emotions of others. There are four components of emotional intelligence:
 

@@ -1,5 +1,3 @@
-Benefits of Developing EQ Skills
-==============================
 
 Emotional intelligence (EI) skills are increasingly recognized as important for success in the workplace. Developing EI skills can lead to a range of benefits, including:
 

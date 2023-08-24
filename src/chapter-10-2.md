@@ -1,5 +1,3 @@
-Reflection and Self-Evaluation
-=================================================================================
 
 Continuous improvement and evaluation are critical components of emotional intelligence (EQ) development. In this chapter, we will explore the importance of reflection and self-evaluation in EQ development.
 

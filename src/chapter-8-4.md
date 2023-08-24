@@ -1,5 +1,3 @@
-Developing High-Performing Teams
-==============================================================
 
 Developing high-performing teams is a critical component of effective leadership. Emotionally intelligent leaders who can understand and respond to the emotions of their team members are better equipped to build strong relationships, foster collaboration, and drive productivity and innovation. In this chapter, we will explore strategies for developing high-performing teams using emotional intelligence.
 

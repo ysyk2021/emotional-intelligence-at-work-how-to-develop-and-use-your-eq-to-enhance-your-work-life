@@ -1,5 +1,3 @@
-Chapter 5: Building Relationships
-=================================
 
 Building strong relationships is an essential component of emotional intelligence (EQ) in the workplace. Emotionally intelligent individuals are better equipped to build positive relationships with colleagues, clients, and customers. In this chapter, we will explore techniques for building strong relationships.
 

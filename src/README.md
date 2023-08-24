@@ -1,4 +1,4 @@
-# Introduction
+
 
 Emotional intelligence (EQ) is a critical skill for workplace success, enabling individuals to understand and manage their own emotions while also building effective relationships with others. "Emotional Intelligence At Work: How To Develop And Use Your EQ To Enhance Your Work Life" provides practical guidance on how to develop and use emotional intelligence to enhance your work life.
 

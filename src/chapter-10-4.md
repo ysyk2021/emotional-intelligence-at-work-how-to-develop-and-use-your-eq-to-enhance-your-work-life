@@ -1,4 +1,3 @@
-# Adapting to Changes in the Workplace
 
 The workplace is constantly evolving, and it is important to adapt emotional intelligence (EI) skills to changes in the workplace. Strategies for adapting to changes in the workplace may include:
 

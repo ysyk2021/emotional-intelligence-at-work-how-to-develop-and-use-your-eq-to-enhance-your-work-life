@@ -1,5 +1,3 @@
-Chapter 9: Using EQ for Career Advancement
-==========================================
 
 Emotional intelligence (EQ) is a valuable asset in any profession. By leveraging EQ, individuals can advance their careers and achieve greater success. In this chapter, we will explore how to use EQ for career advancement.
 

@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Emotional intelligence (EQ) is a critical skill for success in the workplace. In this chapter, we will explore the importance of emotional intelligence, common misconceptions about EQ, and the benefits of developing EQ skills.
 

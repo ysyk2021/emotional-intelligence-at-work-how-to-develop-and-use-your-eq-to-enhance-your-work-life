@@ -1,5 +1,3 @@
-Developing EQ as a Professional Skill
-=================================================================================
 
 Developing emotional intelligence (EQ) as a professional skill is critical for career advancement. Individuals who can effectively manage their own emotions and understand the emotions of others are better equipped to build strong relationships, resolve conflicts, and lead others. In this chapter, we will explore strategies for developing EQ as a professional skill.
 

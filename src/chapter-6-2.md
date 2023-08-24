@@ -1,5 +1,3 @@
-Developing Effective Communication Skills
-=============================================================================
 
 Effective communication is a crucial component of emotional intelligence (EQ) and involves developing strong communication skills. In this chapter, we will explore techniques for developing effective communication skills in the workplace.
 

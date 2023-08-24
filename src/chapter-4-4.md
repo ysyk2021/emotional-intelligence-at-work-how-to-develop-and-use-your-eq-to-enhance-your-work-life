@@ -1,5 +1,3 @@
-Utilizing Active Listening Techniques
-==============================================================================
 
 Empathy and social awareness are critical components of emotional intelligence (EQ) and involve understanding and responding to other people's emotions. In this chapter, we will explore the importance of active listening techniques in developing empathy and social awareness.
 

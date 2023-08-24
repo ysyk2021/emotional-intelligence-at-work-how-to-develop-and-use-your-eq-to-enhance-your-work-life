@@ -1,5 +1,3 @@
-Understanding Triggers and Hot Buttons
-=====================================================================================
 
 Self-awareness and self-regulation are key components of emotional intelligence (EQ). In this chapter, we will explore the importance of understanding triggers and hot buttons in developing self-awareness and self-regulation.
 
