@@ -1,5 +1,4 @@
-Chapter 6: Developing Effective Communication Skills
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the realm of emotional intelligence at work, effective communication is a cornerstone of success. This chapter delves into the crucial skill of developing effective communication skills to enhance your work life and foster stronger relationships with colleagues and superiors.
 

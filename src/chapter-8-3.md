@@ -1,5 +1,4 @@
-Chapter 46: Inspiring and Motivating Employees
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Inspiring and motivating employees is a vital aspect of leadership in the workplace. In this chapter, we will explore how emotional intelligence (EQ) can be a powerful tool for leaders to ignite enthusiasm, boost morale, and drive exceptional performance among their teams.
 

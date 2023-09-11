@@ -1,5 +1,4 @@
-Chapter 5: Utilizing Active Listening Techniques
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Active listening is a foundational skill within emotional intelligence that can significantly enhance your work life. In this chapter, we will delve into the importance of active listening in the workplace and provide practical guidance on how to develop and apply active listening techniques effectively.
 

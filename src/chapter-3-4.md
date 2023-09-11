@@ -1,5 +1,4 @@
-Chapter 14: Strategies for Developing Self-Control
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Self-control is a key component of emotional intelligence, and it plays a vital role in enhancing your work life. In this chapter, we will delve into effective strategies and techniques for developing and strengthening your self-control in the workplace.
 

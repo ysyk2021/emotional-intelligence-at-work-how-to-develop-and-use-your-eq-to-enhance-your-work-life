@@ -1,5 +1,4 @@
-Chapter 7: Utilizing Nonverbal Communication Techniques
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Nonverbal communication is a vital aspect of emotional intelligence at work. This chapter delves into the significance of nonverbal cues and provides insights into how to effectively utilize them to enhance your work life and professional relationships.
 

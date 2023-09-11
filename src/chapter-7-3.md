@@ -1,5 +1,4 @@
-Chapter 17: Strategies for Addressing Difficult Situations
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Navigating challenging and difficult situations is a crucial aspect of emotional intelligence in the workplace. In this chapter, we will explore effective strategies and techniques for addressing difficult situations, managing conflicts, and maintaining your composure while enhancing your work life.
 

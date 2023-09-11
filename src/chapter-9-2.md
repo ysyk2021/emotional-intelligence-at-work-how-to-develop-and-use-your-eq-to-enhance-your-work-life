@@ -1,5 +1,4 @@
-Chapter 33: Developing EQ as a Professional Skill
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Emotional intelligence (EQ) is not just a personal attribute but a valuable professional skill. In this chapter, we'll delve into how you can actively cultivate and apply EQ in your professional life to enhance your career and create a more positive work environment.
 

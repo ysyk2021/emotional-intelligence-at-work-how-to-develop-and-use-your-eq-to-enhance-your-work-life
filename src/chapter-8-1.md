@@ -1,5 +1,4 @@
-Chapter 52: Applying EQ Skills to Leadership
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Leadership is not just about making decisions; it's about inspiring, motivating, and guiding others towards a common goal. In this chapter, we'll explore how emotional intelligence (EQ) plays a pivotal role in effective leadership, and how you can harness EQ skills to become a more influential and empathetic leader.
 

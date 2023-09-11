@@ -1,5 +1,4 @@
-Chapter 17: Continuously Learning and Improving
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 The journey of emotional intelligence at work is an ongoing process of growth and development. In this chapter, we will explore the importance of continuous learning and improvement in enhancing your emotional intelligence and work life satisfaction.
 

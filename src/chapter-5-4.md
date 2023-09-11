@@ -1,5 +1,4 @@
-Chapter 8: Handling Difficult Conversations
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Difficult conversations are an inevitable part of professional life, and mastering them is a key component of emotional intelligence in the workplace. In this chapter, we will explore effective strategies and techniques for navigating challenging discussions, ensuring constructive outcomes, and ultimately enhancing your work life.
 

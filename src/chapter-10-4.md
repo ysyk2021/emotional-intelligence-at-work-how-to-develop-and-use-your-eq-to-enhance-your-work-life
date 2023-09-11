@@ -1,5 +1,4 @@
-Chapter 29: Adapting to Changes in the Workplace
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's fast-paced and ever-evolving work environment, the ability to adapt to change is a crucial skill. In this chapter, we'll explore how you can leverage your emotional intelligence (EQ) to not only cope with workplace changes but thrive in the face of them.
 

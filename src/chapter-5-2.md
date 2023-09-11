@@ -1,5 +1,4 @@
-Chapter 11: Techniques for Building Strong Relationships
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Strong and meaningful relationships in the workplace are a testament to your emotional intelligence. In this chapter, we will explore techniques and strategies to help you nurture and build robust professional relationships with colleagues, superiors, and subordinates, ultimately enhancing your work life.
 

@@ -1,5 +1,4 @@
-Chapter 14: Developing Win-Win Solutions
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 The ability to create win-win solutions is a hallmark of emotional intelligence in the workplace. In this chapter, we will explore the importance of finding mutually beneficial outcomes in professional interactions and provide strategies for developing win-win solutions that enhance your work life.
 

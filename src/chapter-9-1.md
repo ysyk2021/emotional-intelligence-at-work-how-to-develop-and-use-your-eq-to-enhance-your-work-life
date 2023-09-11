@@ -1,5 +1,4 @@
-Chapter 26: Leveraging EQ to Advance Your Career
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Your emotional intelligence (EQ) can be a powerful tool for advancing your career and achieving professional success. In this chapter, we'll explore how you can harness your EQ to propel your career forward and create opportunities for growth and fulfillment.
 

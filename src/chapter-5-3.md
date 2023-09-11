@@ -1,5 +1,4 @@
-Chapter 8: Strategies for Developing Trust and Respect
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Building trust and respect is foundational to establishing positive relationships in the workplace. In this chapter, we will explore essential strategies and techniques for developing and maintaining trust and respect with colleagues, superiors, and subordinates, ultimately enhancing your work life through emotional intelligence.
 

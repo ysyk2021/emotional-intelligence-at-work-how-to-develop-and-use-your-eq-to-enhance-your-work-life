@@ -1,5 +1,4 @@
-Chapter 37: Developing High-Performing Teams
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's collaborative work environment, building and leading high-performing teams is essential for success. In this chapter, we will explore how emotional intelligence (EQ) can be harnessed to create teams that excel in both productivity and cohesion.
 

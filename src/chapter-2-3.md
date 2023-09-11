@@ -1,5 +1,4 @@
-Chapter 2: Assessing Your Own EQ Level
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Before you can effectively develop and utilize emotional intelligence at work, it's essential to assess your own Emotional Quotient (EQ) level. This chapter will guide you through the process of self-assessment, helping you gain a deeper understanding of your emotional strengths and areas for improvement.
 

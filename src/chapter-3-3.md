@@ -1,5 +1,4 @@
-Chapter 5: Understanding Triggers and Hot Buttons
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Emotional intelligence in the workplace begins with recognizing and understanding your triggers and hot buttons. In this chapter, we will delve into the importance of identifying these emotional triggers and explore techniques to manage them effectively, ultimately enhancing your work life.
 

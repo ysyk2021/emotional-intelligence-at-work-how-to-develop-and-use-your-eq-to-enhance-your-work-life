@@ -1,5 +1,4 @@
-Chapter 4: Developing Empathy Skills
-====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Empathy is a powerful emotional intelligence skill that can transform your work life. In this chapter, we will explore the significance of empathy in the workplace and provide guidance on how to develop and utilize this skill effectively.
 

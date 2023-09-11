@@ -1,5 +1,4 @@
-Chapter 20: Utilizing EQ to Build a Strong Professional Network
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the modern workplace, building and maintaining a strong professional network is essential for success. In this chapter, we will explore how emotional intelligence (EQ) can be harnessed to create meaningful connections and enhance your work life through networking.
 

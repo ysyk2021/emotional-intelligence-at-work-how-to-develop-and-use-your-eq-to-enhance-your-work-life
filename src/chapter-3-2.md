@@ -1,5 +1,4 @@
-Chapter 11: Techniques for Managing Emotions
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Managing emotions effectively is at the core of emotional intelligence in the workplace. In this chapter, we will explore a range of techniques and strategies that can help you understand, regulate, and harness your emotions to enhance your work life.
 

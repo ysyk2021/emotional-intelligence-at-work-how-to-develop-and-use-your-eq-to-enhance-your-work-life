@@ -1,5 +1,4 @@
-Chapter 41: Creating a Positive Work Environment
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 A positive work environment is a cornerstone of employee well-being and productivity. In this chapter, we'll explore how emotional intelligence (EQ) can be applied to foster a workplace where employees thrive, collaborate effectively, and achieve their fullest potential.
 

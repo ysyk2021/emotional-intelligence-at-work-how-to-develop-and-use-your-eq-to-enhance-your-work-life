@@ -1,5 +1,4 @@
-Chapter 23: Tracking Progress and Measuring Results
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 To ensure that your journey towards enhancing emotional intelligence at work is effective, it's crucial to track your progress and measure the results. In this chapter, we'll delve into the importance of monitoring your emotional intelligence development and how to do so effectively.
 

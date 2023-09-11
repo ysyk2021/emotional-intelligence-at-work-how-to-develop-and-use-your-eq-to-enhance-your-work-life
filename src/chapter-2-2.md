@@ -1,5 +1,4 @@
-Chapter 3: Understanding the Four Components of EQ
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Emotional Intelligence (EQ) consists of four core components that collectively shape your ability to recognize, understand, manage, and utilize emotions effectively in various work-related contexts. This chapter delves into the intricacies of these components, providing a comprehensive understanding of their significance in enhancing your work life.
 

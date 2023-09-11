@@ -1,5 +1,4 @@
-Chapter 5: Strategies for Enhancing Social Awareness
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the journey to develop and utilize Emotional Intelligence (EQ) to enrich your work life, a fundamental aspect to focus on is the enhancement of social awareness. This chapter will explore various strategies and techniques to help you sharpen your ability to perceive and understand the emotions of others, ultimately leading to more effective interpersonal interactions and a more fulfilling work environment.
 
